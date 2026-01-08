@@ -1,2 +1,2 @@
-# bakker.com
+# solomonbakker.com
 Fine-Art Portfolio
